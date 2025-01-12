@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Joy-the-writer
 - 👀 I’m interested in technical writing 
-- 🌱 I’m currently learning technical writing 
+- 🌱 I’m a technical writer 
 - 💞️ I’m looking to collaborate on expert 
 - 📫 How to reach me ekhatorjoy0825@gmail.com
 - 😄 Pronouns: ...
